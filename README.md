@@ -5,4 +5,4 @@
 非常感谢社区的大力支持！
 <br/>
 ### 相关资源
-- [PCL3 下载](https://afdian.com/p/0164034c016c11ebafcb52540025c377)：下载可免费使用的正式版 PCL3！
+- [PCL3 下载](https://tongtianyema.lanzouo.com/iPAli2v0w5cd)：密码：5mc0 下载可免费使用的正式版 PCL3！
